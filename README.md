@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @XamirhhX  
+- 👀 I’m passionate about AI, Games, Data Science, Science, and Financial Markets.  
+- 🌱 Currently, I’m diving deep into Deep Learning Algorithms and exploring the intersection of AI and financial markets.  
+- 💻 I create visually consistent PowerPoints for clients and enjoy working on creative and technical projects like automating chart analysis.  
+- 📚 As a Computer Science major specializing in AI, I’m always eager to learn and improve my skills.  
+- 📫 You can reach me on Telegram: @XamirhhX.  
+- ⚡ Fun fact: We’re closer to the smallest thing in the universe than we are to the size of the universe itself!  
